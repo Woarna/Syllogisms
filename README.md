@@ -1,3 +1,3 @@
-# Syllogisms
+# List of Syllogisms
 
-* God experiences sucking dick!!!
+* God experiences sucking dick
