@@ -1,1 +1,3 @@
-# syllogisms
+# Syllogisms
+
+* God experiences sucking dick!!!
